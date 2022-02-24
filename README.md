@@ -2,7 +2,6 @@
 ![](https://komarev.com/ghpvc/?username=parammittal16)
 
 I am Param, I am a Frontend Engineer. Experienced in React | JavaScript | Flutter. I am also enthusiastic about Opensource and UI/UX.
-If you want to checkout my professional github please find here https://gitgub.com/parammittal162
 
 Here are some ideas to get you started:
 
