@@ -13,3 +13,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: I am currently serving notice period :).
 
+My resume link - https://drive.google.com/file/d/19AZG53MWz4xDllZPSVT1Isw-R6EB2spF/view?usp=sharing
