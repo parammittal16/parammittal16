@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on React and Flutter.
 - 🌱 I’m currently learning Js | Flutter and all web things. 
 - 👯 I’m also looking new Job opportunities.
-- 📫 How to reach me: parammittal16@gmail.com | +91-9045874007 | https://www.linkedin.com/in/parammittal16.
+- 📫 How to reach me: parammittal16@gmail.com | https://www.linkedin.com/in/parammittal16.
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: I am currently serving notice period :).
