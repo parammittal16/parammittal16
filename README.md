@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 👯 I’m also looking new Job opportunities.
 - 📫 How to reach me: parammittal16@gmail.com | https://www.linkedin.com/in/parammittal16.
 - 😄 Pronouns: He/him.
-- ⚡ Fun fact: I am currently serving notice period :).
+- ⚡ Fun fact: I am the danger and fun fact too :)
