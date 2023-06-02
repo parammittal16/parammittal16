@@ -1,3 +1,5 @@
+![Group 55](https://github.com/parammittal16/parammittal16/assets/31361983/aeae30bb-5b1d-42c6-af01-d999238ff96f)
+
 ### Hi there 👋
 ![](https://komarev.com/ghpvc/?username=parammittal16)
 
